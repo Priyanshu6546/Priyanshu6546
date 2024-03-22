@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Priyanshu6546
 - 👀 I’m interested in creativity
-- 🌱 I’m currently learning IT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
